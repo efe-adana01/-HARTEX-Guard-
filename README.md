@@ -1,0 +1,2 @@
+# -HARTEX-Guard-
+✵ HARTEX Guard
